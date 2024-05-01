@@ -1,5 +1,4 @@
-# 💫 About Me:
-Hi👋 SnitzelKlaus here—coding wizard, bug slayer, coffee aficionado. 🚀💻☕
+# Hi👋 SnitzelKlaus here—coding wizard, bug slayer, coffee aficionado. 🚀💻☕
 
 
 ## 🌐 Socials:
